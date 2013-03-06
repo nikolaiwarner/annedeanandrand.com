@@ -1,0 +1,16 @@
+<!DOCTYPE html>
+<html xmlns="http://www.w3.org/1999/xhtml" xml:lang="en" lang="en-us">
+<head>
+   <meta http-equiv="content-type" content="text/html; charset=utf-8" />
+   <title>{{ page.title }}</title>
+   <link rel="stylesheet" type="text/css" href="/stylesheet.css">
+   <script src="//ajax.googleapis.com/ajax/libs/jquery/1.9.1/jquery.min.js"></script>
+</head>
+<body class="page {{ page.body_class }}">
+  <div class="container">
+    {% include navbar.html %}
+    {{ content }}
+    {% include footer.html %}
+  </div>
+</body>
+</html>

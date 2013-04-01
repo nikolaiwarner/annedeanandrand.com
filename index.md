@@ -1,6 +1,6 @@
 ---
 layout: homepage
-title: AnneDean and Rand
+title: Anne Dean and Rand
 note: Keep lines 1-5 intact and ignore them, por favor. And you can change anything below that and that's what will show up on the page! -N
 ---
 A Story of Distance and Love
@@ -63,7 +63,7 @@ I’ll Come Running Back to You/Sam Cooke
 Home/Edward Sharpe & The Magnetic Zeros
 Into the Mystic/Van Morrison
 
-We coudl not be more thrilled to have you all be a part of our FUN and LOVE-FILLED weekend. Please email us if you have ANY questions about the weekend. 
+We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us if you have ANY questions about the weekend. 
 annedeanandrand@gmail.com
 We love you!
 XO, 

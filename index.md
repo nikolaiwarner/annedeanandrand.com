@@ -72,6 +72,18 @@ ad and rd
 
 get here
 
+INSERT MAP HERE
+
+fly
+
+There are three good airport options:
+
+Link for LEX
+Link for SDF
+Link for CVG
+
+Sometimes LEX is more expensive to 
+
 
 
 

@@ -116,10 +116,38 @@ The Weekend!
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road. 
 
-MORE DETAILS TO COME
+The adults-only (with the exception of family members) will take place on the lawn (weather permitting), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
+MORE DETAILS regarding the venue TO COME.
 
-The adults-only (with the exception of family members) will take place on the lawn (weather permitting), so keep that in mind when you pick your attire and, more importantly, your dancing shoes for the evening. 
+It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
 
+EAT/DRINK!
+
+West Sixth Brewery http://www.westsixth.com/
+One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from Sunrise Bakery http://valotta.com/, and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including Cricket Press http://www.cricket-press.com/ who designed and printed our awesome wedding invitations), roller derby girls http://rocknrollergirls.com/, a local bicyle shop http://thebrokespoke.org/. Anne Dean also teaches a free community yoga class in the beer garden every Wednesday http://www.facebook.com/WestSixthYoga!
+
+Sidebar http://www.facebook.com/WestSixthYoga
+Our favorite tiny dive bar with amazing black bean burgers and sweet potato fries. 
+
+Table 310 http://www.table-three-ten.com/
+One of our favorite atmospheres for drinks before or after dinner, dinner, or just dessert. Make a reservation to be safe and you will not be disappointed. Blackboar dmenu changes weekly.
+
+The Village Idiot http://www.lexingtonvillageidiot.com/
+Lexington's first gastropub. Ale-steamed mussels? Need we say more...
+
+Stella's http://www.stellaskentuckydeli.com/
+Best lunch in town (close by The Grey Goosehttp://www.facebook.com/GreyGooseLex  and Nick Ryan'shttp://nickryans.com/ -two other excellent lunch/dinner options)
+
+Alfalfa http://www.alfalfarestaurant.com/
+Amazing for brunch! 
+
+Doodles http://www.doodlesrestaurant.com/
+Say yes to an awesome breakfast.
+
+Third Street Stuff Coffee 
+Coffee, breakfast, lunch-YUM
+
+For more beer (we like good beer), head to another local brewery Country Boy Brewing http://www.facebook.com/CountryBoyBrewing, The Beer Trappehttp://www.thebeertrappe.com/ , or Lexginton Beerworks http://lexingtonbeerworks.com/home/ (close to Gratz Park Inn)
 
 
 

@@ -70,19 +70,25 @@ XO,
 ad and rd
 
 
-get here
+getting to kentucky!
 
 INSERT MAP HERE
 
-fly
+Fly
 
 There are three good airport options:
 
-Link for LEX
-Link for SDF
-Link for CVG
+LEX http://www.bluegrassairport.com/, in Lexington
+SDF http://www.flylouisville.com/, in Louisville
+CVG http://www.cvgairport.com/, in Northern Kentucky (Cincinnati)
 
-Sometimes LEX is more expensive to 
+LEX is the closest airport but not always the most economical. SDF and CVG are both around an hour and fifteen minute drive to Lexington and typically have more options. After two-and-a-half years of traveling back and forth between Kentucky and Louisiana, we both know all of these airports well (especially LEX). Let us know if you need advice or have questions!
+
+Drive
+
+Lexington literally sits at the intersection of two major interstates, I-64 (east, west) and I-75 (north, south). Our favorite people (you all) will be traveling from all over, so please let us know if we can help with the navigation!
+
+From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersectoin you come to 
 
 
 

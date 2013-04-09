@@ -74,7 +74,7 @@ GET ME TO KENTUCKY!
 
 INSERT MAP HERE
 
-By plane:
+By air:
 
 There are three good airport options:
 
@@ -110,7 +110,16 @@ A handful of rooms and suites have been held under Watkins/Dotson wedding
 Contact Will Smith or the front desk to make reservations
 859.231.1777
 
-Please let us know if you have trouble making any of these arrangements. The key is to book your room(s) early! 
+Please let us know if you have trouble making any of these arrangements. The key is to book your room(s)early! 
+
+The Weekend!
+
+Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road. 
+
+MORE DETAILS TO COME
+
+The adults-only (with the exception of family members) will take place on the lawn (weather permitting), so keep that in mind when you pick your attire and, more importantly, your dancing shoes for the evening. 
+
 
 
 

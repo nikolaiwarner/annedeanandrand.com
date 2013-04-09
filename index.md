@@ -3,9 +3,9 @@ layout: homepage
 title: Anne Dean and Rand
 note: Keep lines 1-5 intact and ignore them, por favor. And you can change anything below that and that's what will show up on the page! -N
 ---
-A Story of Distance and Love
+# A Story of Distance and Love
 
-647 Miles by Air, 797 by Car
+## 647 Miles by Air, 797 by Car
 
 The story of Anne Dean and Rand began a few years ago, out on the academic history conference circuit. They had the exact same job as senior acquisitions editors for different university presses, but they met because Rand (who is also a historian) was presenting a paper at the meeting that Anne Dean believed might be worth looking into as a possible book project. As a result, they met for about ten minutes during the conference. Rand was in a suit and tie, and rambled on about ambiguous ideas for a book; Anne Dean was in a dress and red cowboy boots, taking notes (or at least pretending to). While no book emerged, Rand did develop an immediate crush on the seemingly hip, smart, and completely enthralling Anne Dean. (He also learned, much to his mortification, that her first name was not “Anne.”) Meanwhile, Anne Dean had also developed a crush on this tall, mysterious, and seemingly aloof historian and editor named Rand. 
 
@@ -70,30 +70,30 @@ XO,
 ad and rd
 
 
-GET ME TO KENTUCKY!
+## GET ME TO KENTUCKY!
 
-INSERT MAP HERE
+``INSERT MAP HERE``
 
-By air:
+### By air:
 
 There are three good airport options:
 
-LEX http://www.bluegrassairport.com/, in Lexington
-SDF http://www.flylouisville.com/, in Louisville
-CVG http://www.cvgairport.com/, in Northern Kentucky (Cincinnati)
+- LEX http://www.bluegrassairport.com/, in Lexington
+- SDF http://www.flylouisville.com/, in Louisville
+- CVG http://www.cvgairport.com/, in Northern Kentucky (Cincinnati)
 
 LEX is the closest airport but not always the most economical. SDF and CVG are both around an hour and fifteen minute drive to Lexington and typically have more options. After two-and-a-half years of traveling back and forth between Kentucky and Louisiana, we both know all of these airports well (especially LEX). Let us know if you need advice or have questions!
 
-By automobile:
+### By automobile:
 
 Lexington literally sits at the intersection of two major interstates, I-64 (east, west) and I-75 (north, south). Our favorite people (you all) will be traveling from all over, so please let us know if we can help with the navigation!
 
-From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersection you come to is Versailles Road (pronounced VER-SAILS; we are Kentuckian, not French). Turn right on Versailles Road which will lead you directly into downtown Lexington. All three hotels that have room blocks for the wedding are within walking distance of each other downtown. 
-For Hyatt and Hilton lodgers, stay on Versailles (say it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street). 
-For Gratz Park Inn lodgers, make the same left on North Broadway, but drive a couple more blocks and turn right on Short Street (one-way). You will see a few of our favorite restaurants and then turn left on North Limestone (one-way). Drive a couple more blocks and you will see Gratz Park Inn signs on your left. Turn left on West Second Street and the hotel will be directly on your left. 
+- From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersection you come to is Versailles Road (pronounced VER-SAILS; we are Kentuckian, not French). Turn right on Versailles Road which will lead you directly into downtown Lexington. All three hotels that have room blocks for the wedding are within walking distance of each other downtown. 
+- For Hyatt and Hilton lodgers, stay on Versailles (say it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street). 
+- For Gratz Park Inn lodgers, make the same left on North Broadway, but drive a couple more blocks and turn right on Short Street (one-way). You will see a few of our favorite restaurants and then turn left on North Limestone (one-way). Drive a couple more blocks and you will see Gratz Park Inn signs on your left. Turn left on West Second Street and the hotel will be directly on your left. 
 
 
-GET A ROOM!
+## GET A ROOM!
 
 We have blocked off rooms at three hotels in downtown Lexington. All three hotels are within walking distance of each other and we will add information soon about shuttling to the various venues. The meeting place hotel will be the Hilton on Vine Street. 
 Rooms have been reserved under Watkins/Dotson Wedding for September 27 and September 28. If you plan on arriving earlier or staying later (yay!), we have been told that the same discounted rate will be applied if rooms are available. 
@@ -112,7 +112,7 @@ Contact Will Smith or the front desk to make reservations
 
 Please let us know if you have trouble making any of these arrangements. The key is to book your room(s)early! 
 
-The Weekend!
+## The Weekend!
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road. 
 
@@ -121,7 +121,7 @@ MORE DETAILS regarding the venue TO COME.
 
 It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
 
-EAT/DRINK!
+## EAT/DRINK!
 
 West Sixth Brewery http://www.westsixth.com/
 One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from Sunrise Bakery http://valotta.com/, and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including Cricket Press http://www.cricket-press.com/ who designed and printed our awesome wedding invitations), roller derby girls http://rocknrollergirls.com/, a local bicyle shop http://thebrokespoke.org/. Anne Dean also teaches a free community yoga class in the beer garden every Wednesday http://www.facebook.com/WestSixthYoga!

@@ -116,7 +116,7 @@ Please let us know if you have trouble making any of these arrangements. The key
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road. 
 
-The adults-only (with the exception of family members) will take place on the lawn (weather permitting), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
+The adults-only (with the exception of family members) ceremony and reception will take place on the lawn (weather permitting), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
 MORE DETAILS regarding the venue TO COME.
 
 It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
@@ -138,6 +138,9 @@ Lexington's first gastropub. Ale-steamed mussels? Need we say more...
 Stella's http://www.stellaskentuckydeli.com/
 Best lunch in town (close by The Grey Goosehttp://www.facebook.com/GreyGooseLex  and Nick Ryan'shttp://nickryans.com/ -two other excellent lunch/dinner options)
 
+Mellow Mushroom http://mellowmushroom.com/store/lexington
+We LOVE pizza. 
+
 Alfalfa http://www.alfalfarestaurant.com/
 Amazing for brunch! 
 
@@ -147,7 +150,43 @@ Say yes to an awesome breakfast.
 Third Street Stuff Coffee 
 Coffee, breakfast, lunch-YUM
 
-For more beer (we like good beer), head to another local brewery Country Boy Brewing http://www.facebook.com/CountryBoyBrewing, The Beer Trappehttp://www.thebeertrappe.com/ , or Lexginton Beerworks http://lexingtonbeerworks.com/home/ (close to Gratz Park Inn)
+For more beer (we like good beer), head to another local brewery Country Boy Brewing http://www.facebook.com/CountryBoyBrewing, The Beer Trappehttp://www.thebeertrappe.com/ , or Lexington Beerworks http://lexingtonbeerworks.com/home/ (close to Gratz Park Inn)
+
+For anyone willing to hop in a car to experience a little more Kentucky...
+
+Wallace Station http://www.wallacestation.com/Wallace_Station_Deli_and_Bakery/Home.html
+This is a joint in the middle of beautiful KY horse country and has been featured in Garden & Gun and the Food Network's Diners, Drive-Ins and Dives.
+It is worth the drive alone!
+
+Horses and Bourbon
+
+Get up early and head to Keeneland racetrack to see eat breakfast at the Track Kitchen and to watch racehorses run their morning workouts. It is simply breathtaking!
+http://www.keeneland.com/discover/morning-workouts 
+Morning Workouts run from 6 am until 10 am. 
+
+Tour our favorite bourbon distillery! This is definitely worth the drive and the sample you receive at the end. 
+www.woodfordreserve.com
+
+If you have time, check out other distilleries on the Kentucky Bourbon Trail.
+http://kybourbontrail.com/
+
+Registries!
+Check out the fun stuff we registered for!
+
+Crate & Barrel
+http://www.crateandbarrel.com/Gift-Registry/Anne-Dean-Watkins-and-Rand-Dotson/r5002838
+
+Macy's
+http://www1.macys.com/registry/wedding/guest/?registryId=2027668
+
+Williams-Sonoma
+https://secure.williams-sonoma.com/registry/96zcfstzwh/registry-list.html
+
+Registry 360
+http://www.giftregistry360.com/registry/index
+
+Sterling Cut Glass
+http://store.sterlingcutglass.com/iww_g3.pvx?;choose_registry?regid=00BR07422
 
 
 

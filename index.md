@@ -70,7 +70,7 @@ XO,
 ad and rd
 
 
-## GET ME TO KENTUCKY!
+## GET ME TO KENTUCKY! (THIS IS A NEW PAGE-HEADER TITLE)
 
 ``INSERT MAP HERE``
 
@@ -93,7 +93,7 @@ Lexington literally sits at the intersection of two major interstates, I-64 (eas
 - For Gratz Park Inn lodgers, make the same left on North Broadway, but drive a couple more blocks and turn right on Short Street (one-way). You will see a few of our favorite restaurants and then turn left on North Limestone (one-way). Drive a couple more blocks and you will see Gratz Park Inn signs on your left. Turn left on West Second Street and the hotel will be directly on your left. 
 
 
-## GET A ROOM!
+## GET A ROOM! (THIS IS A NEW PAGE-HEADER TITLE)
 
 We have blocked off rooms at three hotels in downtown Lexington. All three hotels are within walking distance of each other and we will add information soon about shuttling to the various venues. The meeting place hotel will be the Hilton on Vine Street. 
 Rooms have been reserved under Watkins/Dotson Wedding for September 27 and September 28. If you plan on arriving earlier or staying later (yay!), we have been told that the same discounted rate will be applied if rooms are available. 
@@ -112,7 +112,7 @@ Contact Will Smith or the front desk to make reservations
 
 Please let us know if you have trouble making any of these arrangements. The key is to book your room(s)early! 
 
-## The Weekend!
+## The Weekend! (THIS IS A NEW PAGE-HEADER TITLE)
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road. 
 
@@ -121,7 +121,7 @@ MORE DETAILS regarding the venue TO COME.
 
 It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
 
-## EAT/DRINK!
+## Please have some fun! (THIS IS A NEW PAGE-HEADER TITLE)
 
 West Sixth Brewery http://www.westsixth.com/
 One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from Sunrise Bakery http://valotta.com/, and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including Cricket Press http://www.cricket-press.com/ who designed and printed our awesome wedding invitations), roller derby girls http://rocknrollergirls.com/, a local bicyle shop http://thebrokespoke.org/. Anne Dean also teaches a free community yoga class in the beer garden every Wednesday http://www.facebook.com/WestSixthYoga!
@@ -170,8 +170,8 @@ www.woodfordreserve.com
 If you have time, check out other distilleries on the Kentucky Bourbon Trail.
 http://kybourbontrail.com/
 
-Registries!
-Check out the fun stuff we registered for!
+To gift or not to gift...(THIS IS A NEW PAGE-HEADER TITLE)
+Check out all the fun and crazy stuff we registered for.
 
 Crate & Barrel
 http://www.crateandbarrel.com/Gift-Registry/Anne-Dean-Watkins-and-Rand-Dotson/r5002838

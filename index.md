@@ -80,8 +80,12 @@ ad and rd
 
 There are three good airport options:
 
--[LEX](http://www.bluegrassairport.com/), in Lexington
+-[LEX](http://www.bluegrassairport.com/), in Lexington  
+
+
 -[SDF](http://www.flylouisville.com/), in Louisville
+
+
 -[CVG](http://www.cvgairport.com/), in Northern Kentucky (Cincinnati)
 
 [LEX](http://www.bluegrassairport.com/) is the closest airport but not always the most economical. [SDF](http://www.flylouisville.com/) and [CVG](http://cvgairport.com/)are both around an hour and fifteen minute drive to Lexington and typically have more options. After two-and-a-half years of traveling back and forth between Kentucky and Louisiana, we both know all of these airports well (especially LEX). Let us know if you need advice or have questions!
@@ -91,13 +95,19 @@ There are three good airport options:
 Lexington literally sits at the intersection of two major interstates, I-64 (east, west) and I-75 (north, south). Our favorite people (you all) will be traveling from all over, so please let us know if we can help with the navigation!
 
 - From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersection you come to is Versailles Road (pronounced VER-SAILS; we are Kentuckian, not French). Turn right on Versailles Road which will lead you directly into downtown Lexington. All three hotels that have room blocks for the wedding are within walking distance of each other downtown. 
-- For Hyatt and Hilton lodgers (please see hotel details on GET A ROOM! page), stay on Versailles (say it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street). 
+ 
+
+- For Hyatt and Hilton lodgers (please see hotel details on GET A ROOM! page), stay on Versailles (practice saying it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street). 
+
+
 - For Gratz Park Inn lodgers, make the same left on North Broadway, but drive a couple more blocks and turn right on Short Street (one-way). You will see a few of our favorite restaurants and then turn left on North Limestone (one-way). Drive a couple more blocks and you will see Gratz Park Inn signs on your left. Turn left on West Second Street and the hotel will be directly on your left. 
 
 
 ## GET A ROOM! (THIS IS A NEW PAGE-HEADER TITLE)
 
 We have blocked off rooms at three hotels in downtown Lexington. All three hotels are within walking distance of each other and we will add information soon about shuttling to the various venues. The meeting place hotel will be the Hilton on Vine Street. 
+
+
 Rooms have been reserved under Watkins/Dotson Wedding for September 27 and September 28. If you plan on arriving earlier or staying later (yay!), we have been told that the same discounted rate will be applied if rooms are available. 
 Please book before August 27th to guarantee the group rate. 
 
@@ -105,7 +115,9 @@ Here are links to the hotels  (Hilton and Hyatt can be booked directly from belo
 
 [HILTON](http://www.hilton.com/en/hi/groups/personalized/L/LEXDTHF-WATDOT-20130926/index.jhtml?WT.mc_id=POG)
 
+
 [HYATT](https://resweb.passkey.com/Resweb.do?mode=welcome_ei_new&eventID=10614514)
+
 
 [GRATZ PARK INN](http://www.gratzparkinn.com/) (historic boutique inn)
 A handful of rooms and suites have been held under Watkins/Dotson wedding
@@ -128,42 +140,55 @@ It is super important to us that you enjoy yourselves while in the Bluegrass. Be
 [West Sixth Brewery](http://www.westsixth.com/)
 One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from [Sunrise Bakery](http://valotta.com/), and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including [Cricket Press](http://www.cricket-press.com/) who designed and printed our awesome wedding invitations), [roller derby girls](http://rocknrollergirls.com/), a [local bicyle shop](http://thebrokespoke.org/). Anne Dean also teaches a free community [yoga](http://www.facebook.com/WestSixthYoga) class in the beer garden every Wednesday! 
 
+
 [Sidebar Grill](http://www.facebook.com/sidebar.grill)
 Our favorite tiny dive bar with amazing black bean burgers and sweet potato fries. And the ice cream! Anne Dean's friend Seana of [Pedal Sassy](http://www.facebook.com/PedalSassy?fref=ts) makes the best ice cream (with alcohol) and it is served here. Flavors rotate each week.
+
 
 [Table 310](http://www.table-three-ten.com/)
 One of our favorite atmospheres for drinks before or after dinner, dinner, or just dessert. Make a reservation to be safe and you will not be disappointed. Blackboar dmenu changes weekly.
 
+
 [The Village Idiot](http://www.lexingtonvillageidiot.com/)
 Lexington's first gastropub. Ale-steamed mussels? Need we say more...
+
 
 [Stella's Kentucky Deli](http://www.stellaskentuckydeli.com/)
 Best lunch in town (close by [The Grey Goose](http://www.facebook.com/GreyGooseLex)  and [Nick Ryan's Saloon](http://nickryans.com/) -two other excellent lunch/dinner options)
 
+
 [Mellow Mushroom Pizza](http://mellowmushroom.com/store/lexington)
 We LOVE pizza. 
+
 
 [Alfalfa](http://www.alfalfarestaurant.com/)
 Amazing for brunch! 
 
+
 [Doodles](http://www.doodlesrestaurant.com/)
 Say yes to an awesome breakfast. Plus they have beignets. 
+
 
 [Third Street Stuff Coffee](http://www.yelp.com/biz/third-st-stuff-lexington)
 Coffee, breakfast, lunch-YUM
 
+
 For more beer (we like good beer), head to another local brewery [Country Boy Brewing](http://www.facebook.com/CountryBoyBrewing), [The Beer Trappe](http://www.thebeertrappe.com/) , or [Lexington Beerworks](http://lexingtonbeerworks.com/home/) (close to Gratz Park Inn)
 
+
 For anyone willing to hop in a car to experience a little more Kentucky...
+
 
 [Wallace Station](http://www.wallacestation.com/Wallace_Station_Deli_and_Bakery/Home.html)
 This is a joint in the middle of beautiful KY horse country and has been featured in Garden & Gun and the Food Network's Diners, Drive-Ins and Dives.
 It is worth the drive alone!
 
+
 Horses and Bourbon
 
 Get up early and head to [Keeneland](http://www.keeneland.com/discover/morning-workouts) racetrack to see eat breakfast at the Track Kitchen and to watch racehorses run their morning workouts. It is simply breathtaking!
 Morning Workouts run from 6 am until 10 am. 
+
 
 Tour our [favorite bourbon distillery](http://www.woodfordreserve.com)! This is definitely worth the drive and the sample you receive at the end. 
 
@@ -176,11 +201,15 @@ Check out all the fun and crazy stuff we registered for.
 
 [Crate & Barrel](http://www.crateandbarrel.com/Gift-Registry/Anne-Dean-Watkins-and-Rand-Dotson/r5002838)
 
+
 [Macy's](http://www1.macys.com/registry/wedding/guest/?registryId=2027668)
+
 
 [Williams-Sonoma](https://secure.williams-sonoma.com/registry/96zcfstzwh/registry-list.html)
 
+
 [Registry 360](http://www.giftregistry360.com/registry/index)
+
 
 [Sterling Cut Glass](http://store.sterlingcutglass.com/iww_g3.pvx?;choose_registry?regid=00BR07422)
 

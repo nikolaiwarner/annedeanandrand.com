@@ -26,7 +26,7 @@ They are fascinated with and thrilled about their future, and they feel incredib
 
 (CAN WE MAKE THE PLAYLIST FONTS MUCH SMALLER?)
 “Festus Mix” Nov 2010  
-<font size=10px>Gray Stables / Iron & Wine  
+Gray Stables / Iron & Wine  
 Rue Hollow / Hush Arbors  
 Red Apples / Cat Power  
 Wild Horses / Rolling Stones  
@@ -42,10 +42,10 @@ Down the Line / Jose Gonzalez
 With a Wish / Miracle Legion  
 Epoch / Bon Iver  
 Goner w/ Souvenir / Richard Buckner  	
-Beginning To See The Light / The Velvet Underground</font>    
+Beginning To See The Light / The Velvet Underground    
 <br>
 “Ladybird Mix” Nov 2010  
-<font size=10px>She’s Gone/The Bird and the Bee  
+She’s Gone/The Bird and the Bee  
 She’s Long Gone/The Black Keys  
 Before You Cry/Camera Obscura  
 Wings on the Borrow/Coralee and the Townies  
@@ -63,7 +63,7 @@ Backstreet Girl/The Rolling Stones
 Good Woman/Cat Power  
 I’ll Come Running Back to You/Sam Cooke  
 Home/Edward Sharpe & The Magnetic Zeros  
-Into the Mystic/Van Morrison</font>    
+Into the Mystic/Van Morrison      
 
 We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us if you have ANY questions about the weekend. 
 annedeanandrand@gmail.com

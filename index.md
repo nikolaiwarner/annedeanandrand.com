@@ -26,8 +26,8 @@ They are fascinated with and thrilled about their future, and they feel incredib
 
 (CAN WE MAKE THE PLAYLIST FONTS MUCH SMALLER? - yes! working on this. how small are you thinking?)  
 “Festus Mix” Nov 2010  
-Gray Stables / Iron & Wine  
-Rue Hollow / Hush Arbors  
+#### Gray Stables / Iron & Wine  
+#### Rue Hollow / Hush Arbors  
 #### Red Apples / Cat Power  
 Wild Horses / Rolling Stones  
 September Gurls / Big Star  

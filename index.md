@@ -28,7 +28,7 @@ They are fascinated with and thrilled about their future, and they feel incredib
 “Festus Mix” Nov 2010  
 Gray Stables / Iron & Wine  
 Rue Hollow / Hush Arbors  
-Red Apples / Cat Power  
+#### Red Apples / Cat Power  
 Wild Horses / Rolling Stones  
 September Gurls / Big Star  
 Half Lit / Richard Swift  

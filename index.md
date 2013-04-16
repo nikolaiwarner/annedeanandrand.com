@@ -185,8 +185,7 @@ https://secure.williams-sonoma.com/registry/96zcfstzwh/registry-list.html
 Registry 360
 http://www.giftregistry360.com/registry/index
 
-Sterling Cut Glass
-http://store.sterlingcutglass.com/iww_g3.pvx?;choose_registry?regid=00BR07422
+[Sterling Cut Glass](http://store.sterlingcutglass.com/iww_g3.pvx?;choose_registry?regid=00BR07422)
 
 
 

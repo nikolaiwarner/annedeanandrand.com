@@ -81,6 +81,8 @@ ad and rd
 <small>View <a href="https://maps.google.com/maps/ms?msa=0&amp;msid=202480012028918037780.0004da6c3374aac1151c1&amp;hl=en&amp;ie=UTF8&amp;t=m&amp;ll=38.051876,-84.60434&amp;spn=0.259536,0.439453&amp;z=11&amp;source=embed" style="color:#0000FF;text-align:left">wedding weekend map</a> in a larger map</small>  
 
 
+Map also designates some our favorites places that are mentioned in "Please Have Some Fun" section. 
+
 ### By air:
 
 There are three good airport options:

@@ -24,7 +24,7 @@ This past New Year’s Eve, as fireworks exploded in the midnight sky over Lexin
 They are fascinated with and thrilled about their future, and they feel incredibly privileged that you, their friends and family, will be with them to see their journey begin on September 28, 2013. 
 
 
-(CAN WE MAKE THE PLAYLIST FONTS MUCH SMALLER?)
+(CAN WE MAKE THE PLAYLIST FONTS MUCH SMALLER? - yes! working on this. how small are you thinking?)  
 “Festus Mix” Nov 2010  
 Gray Stables / Iron & Wine  
 Rue Hollow / Hush Arbors  

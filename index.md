@@ -25,45 +25,45 @@ They are fascinated with and thrilled about their future, and they feel incredib
 
 
 (CAN WE MAKE THE PLAYLIST FONTS MUCH SMALLER?)
-“Festus Mix” Nov 2010 
-Gray Stables / Iron & Wine
-Rue Hollow / Hush Arbors
-Red Apples / Cat Power
-Wild Horses / Rolling Stones
-September Gurls / Big Star
+“Festus Mix” Nov 2010  
+Gray Stables / Iron & Wine  
+Rue Hollow / Hush Arbors  
+Red Apples / Cat Power  
+Wild Horses / Rolling Stones  
+September Gurls / Big Star  
 Half Lit / Richard Swift  
-Four Winds / Bright Eyes
-Awful Bliss / Guided By Voices	
-Strange Form of Life / Bonnie "Prince" Billy	T
-Weary Arms / Crooked Fingers
-Can You Fly / Freedy Johnston
-Deep Sea Diver / Grizzly Bear
-Down the Line / Jose Gonzalez
-With a Wish / Miracle Legion
-Epoch / Bon Iver
-Goner w/ Souvenir / Richard Buckner	
-Beginning To See The Light / The Velvet Underground
-
-“Ladybird Mix” Nov 2010
-She’s Gone/The Bird and the Bee
-She’s Long Gone/The Black Keys
-Before You Cry/Camera Obscura
-Wings on the Borrow/Coralee and the Townies
-Where’d All the Time Go?/Dr. Dog
-Runaway/The National
-Beacon/Matt Duncan
-Creature Fear/Bon Iver
-Hummingbirds Black Out/Englishman
-You Are Free/Mates of State
-Northern Sky/Nick Drake
-Down Home Girl/Old Crow Medicine Show
-Lovesong of The Buzzard/Iron & Wine
-Here At the Right Time/Josh Ritter
-Backstreet Girl/The Rolling Stones
-Good Woman/Cat Power
-I’ll Come Running Back to You/Sam Cooke
-Home/Edward Sharpe & The Magnetic Zeros
-Into the Mystic/Van Morrison
+Four Winds / Bright Eyes  
+Awful Bliss / Guided By Voices  	
+Strange Form of Life / Bonnie "Prince" Billy  
+Weary Arms / Crooked Fingers  
+Can You Fly / Freedy Johnston  
+Deep Sea Diver / Grizzly Bear  
+Down the Line / Jose Gonzalez  
+With a Wish / Miracle Legion  
+Epoch / Bon Iver  
+Goner w/ Souvenir / Richard Buckner  	
+Beginning To See The Light / The Velvet Underground  
+<br>
+“Ladybird Mix” Nov 2010  
+She’s Gone/The Bird and the Bee  
+She’s Long Gone/The Black Keys  
+Before You Cry/Camera Obscura  
+Wings on the Borrow/Coralee and the Townies  
+Where’d All the Time Go?/Dr. Dog  
+Runaway/The National  
+Beacon/Matt Duncan  
+Creature Fear/Bon Iver  
+Hummingbirds Black Out/Englishman  
+You Are Free/Mates of State  
+Northern Sky/Nick Drake  
+Down Home Girl/Old Crow Medicine Show  
+Lovesong of The Buzzard/Iron & Wine  
+Here At the Right Time/Josh Ritter  
+Backstreet Girl/The Rolling Stones  
+Good Woman/Cat Power  
+I’ll Come Running Back to You/Sam Cooke  
+Home/Edward Sharpe & The Magnetic Zeros  
+Into the Mystic/Van Morrison  
 
 We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us if you have ANY questions about the weekend. 
 annedeanandrand@gmail.com

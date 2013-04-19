@@ -1,4 +1,4 @@
 ---
 layout: homepage
-title: Anne Dean and Rand
+title: AnneDean and Rand
 ---

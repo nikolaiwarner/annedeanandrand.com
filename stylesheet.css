@@ -37,7 +37,6 @@ li {
 
 .navbar a {
   text-decoration: none;
-  padding-right: 70px;
   text-transform: lowercase;
   color: #777;
 }
@@ -91,4 +90,8 @@ h4 {
 }
 .links a {
   margin-bottom: 5px;
+}
+
+.footer {
+  margin-top: 40px;
 }

@@ -24,7 +24,7 @@ li {
 }
 
 .container {
-  width: 600px;
+  width: 800px;
   margin: 0 auto;
 }
 
@@ -50,7 +50,7 @@ li {
 
 .navbar .slogan {
   font-size: 1.5em;
-  line-height: 1em;
+  line-height: 1.3em;
   margin-bottom: 20px;
 }
 

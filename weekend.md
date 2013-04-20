@@ -3,7 +3,7 @@ layout: page
 title: Anne Dean and Rand
 ---
 
-# The Weekend!
+# the weekend
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road.
 

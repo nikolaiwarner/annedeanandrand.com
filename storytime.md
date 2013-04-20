@@ -17,7 +17,6 @@ Feel free to listen to our "september" playlist as you peruse our website. If yo
 <iframe src="https://embed.spotify.com/?uri=spotify:user:annedeanw:playlist:01MffXd14fFIn5mhQS0oJI"
   width="450" height="380" frameborder="0" allowtransparency="true"></iframe>
   
-  
 ## A Story of Distance and Love
 ## 647 Miles by Air, 797 by Car
 

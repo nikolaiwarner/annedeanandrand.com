@@ -63,6 +63,10 @@ They are fascinated with and thrilled about their future, and they feel incredib
 #### Home/Edward Sharpe & The Magnetic Zeros
 #### Into the Mystic/Van Morrison
 
+
+<iframe src="https://embed.spotify.com/?uri=spotify:user:annedeanw:playlist:01MffXd14fFIn5mhQS0oJI"
+  width="450" height="380" frameborder="0" allowtransparency="true"></iframe>
+
 We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us if you have ANY questions about the weekend.
 annedeanandrand@gmail.com
 We love you!

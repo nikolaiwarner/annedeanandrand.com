@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Anne Dean and Rand
+title: the weekend
 ---
 
 # the weekend

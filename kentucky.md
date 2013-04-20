@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Anne Dean and Rand
+title: get me to kentucky
 ---
 
 # get me to kentucky

@@ -1,9 +1,9 @@
 ---
 layout: page
-title: Please have some fun!
+title: weekend kentucky fun
 ---
 
-# Please have some fun!
+# weekend kentucky fun
 
 [West Sixth Brewery](http://www.westsixth.com/)
 One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from [Sunrise Bakery](http://valotta.com/), and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including [Cricket Press](http://www.cricket-press.com/) who designed and printed our awesome wedding invitations), [roller derby girls](http://rocknrollergirls.com/), a [local bicyle shop](http://thebrokespoke.org/). Anne Dean also teaches a free community [yoga](http://www.facebook.com/WestSixthYoga) class in the beer garden every Wednesday!

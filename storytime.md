@@ -8,7 +8,7 @@ title: storytime
 # storytime
 
 
-#september! playlist
+september! playlist
 
 
 Feel free to listen to our "september!" playlist as you peruse our website. If you have Spotify, feel free to suscribe to our playlist as we will will be adding more music. 

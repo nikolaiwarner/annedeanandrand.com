@@ -13,7 +13,8 @@ title: storytime
 Feel free to listen to our "september!" playlist as you peruse our website. If you have Spotify, feel free to suscribe to our playlist as we will will be adding more music. 
 
 <iframe src="https://embed.spotify.com/?theme=white&view=coverart&uri=spotify:user:annedeanw:playlist:01MffXd14fFIn5mhQS0oJI"
-  width="450" height="380" frameborder="0" allowtransparency="true"></iframe>
+  width="450" height="380" frameborder="0" allowtransparency="true">
+</iframe>
   
   
 ## A Story of Distance and Love

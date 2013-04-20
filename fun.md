@@ -48,7 +48,7 @@ For anyone willing to hop in a car to experience a little more Kentucky...
 
 
 [Wallace Station](http://www.wallacestation.com/Wallace_Station_Deli_and_Bakery/Home.html)
-This is a joint in the middle of beautiful KY horse country and has been featured in Garden & Gun and the Food Network's Diners, Drive-Ins and Dives.
+Delicious lunch spot. This is a joint in the middle of beautiful KY horse country and has been featured in Garden & Gun and the Food Network's Diners, Drive-Ins and Dives.
 It is worth the drive alone!
 
 
@@ -61,5 +61,5 @@ Morning Workouts run from 6 am until 10 am.
 Tour our [favorite bourbon distillery](http://www.woodfordreserve.com)! This is definitely worth the drive and the sample you receive at the end.
 
 
-If you have time, check out other distilleries on the [Kentucky Bourbon Trail](http://kybourbontrail.com/)
+If you have time, check out other distilleries on the [Kentucky Bourbon Trail](http://kybourbontrail.com/).
 

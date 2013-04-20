@@ -3,7 +3,7 @@ layout: page
 title: Anne Dean and Rand
 ---
 
-# GET ME TO KENTUCKY
+# get me to kentucky
 
 <iframe width="800" height="480" frameborder="0" scrolling="no" marginheight="0" marginwidth="0" src="https://maps.google.com/maps/ms?msa=0&amp;msid=202480012028918037780.0004da6c3374aac1151c1&amp;hl=en&amp;ie=UTF8&amp;t=m&amp;ll=38.051876,-84.60434&amp;spn=0.259536,0.439453&amp;z=11&amp;output=embed">
 </iframe>
@@ -11,7 +11,7 @@ title: Anne Dean and Rand
 <small>View <a href="https://maps.google.com/maps/ms?msa=0&amp;msid=202480012028918037780.0004da6c3374aac1151c1&amp;hl=en&amp;ie=UTF8&amp;t=m&amp;ll=38.051876,-84.60434&amp;spn=0.259536,0.439453&amp;z=11&amp;source=embed" style="color:#0000FF;text-align:left">wedding weekend map</a> in a larger map</small>
 
 
-Map also designates some our favorites places that are mentioned in "Please Have Some Fun" section.
+Map also designates some our favorites places that are mentioned in the [kentucky fun](http://annedeanandrand.com/room/) section.
 
 ### By air:
 
@@ -34,7 +34,7 @@ Lexington literally sits at the intersection of two major interstates, I-64 (eas
 - From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersection you come to is Versailles Road (pronounced VER-SAILS; we are Kentuckian, not French). Turn right on Versailles Road which will lead you directly into downtown Lexington. All three hotels that have room blocks for the wedding are within walking distance of each other downtown.
 
 
-- For Hyatt and Hilton lodgers (please see [hotel details on GET A ROOM! page](/room)), stay on Versailles (practice saying it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street).
+- For Hyatt and Hilton lodgers (please see hotel details on [get a room](/room)), stay on Versailles (practice saying it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street).
 
 
 - For Gratz Park Inn lodgers, make the same left on North Broadway, but drive a couple more blocks and turn right on Short Street (one-way). You will see a few of our favorite restaurants and then turn left on North Limestone (one-way). Drive a couple more blocks and you will see Gratz Park Inn signs on your left. Turn left on West Second Street and the hotel will be directly on your left.

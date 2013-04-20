@@ -1,9 +1,9 @@
 ---
 layout: page
-title: Get a room!
+title: get a room
 ---
 
-# GET A ROOM!
+# get a room
 
 We have blocked off rooms at three hotels in downtown Lexington. All three hotels are within walking distance of each other and we will add information soon about shuttling to the various venues. The meeting place hotel will be the Hilton on Vine Street.
 

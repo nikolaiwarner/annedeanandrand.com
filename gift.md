@@ -1,9 +1,9 @@
 ---
 layout: page
-title: To gift or not to gift...
+title: the goods (registries)
 ---
 
-# To gift or not to gift...
+# the goods (registries)
 
 Check out all the fun and crazy stuff we registered for.
 

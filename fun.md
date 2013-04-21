@@ -5,6 +5,9 @@ title: kentucky fun
 
 # kentucky fun
 
+It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
+
+
 # eats
 
 [West Sixth Brewery](http://www.westsixth.com/)<br>

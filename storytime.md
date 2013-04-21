@@ -91,4 +91,4 @@ ad and rd
 <br>
 
 
-*all photographs by Jeanna Justice and Richie Wireman of [You, Me Studio](http://www.youmeweddings.com/).
+*all photographs by Jeanna Justice and Richie Wireman of [You, Me Studio](http://www.youmeweddings.com/).   

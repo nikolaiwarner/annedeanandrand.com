@@ -87,8 +87,8 @@ We love you!
 XO,
 <br>
 ad and rd
+<br>
+<br>
 
 
-
-
-**all photographs by Jeanna Justice and Richie Wireman of [You, Me Studio](www.youmeweddings.com).
+*all photographs by Jeanna Justice and Richie Wireman of [You, Me Studio](http://www.youmeweddings.com).

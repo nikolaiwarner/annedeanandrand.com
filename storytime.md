@@ -80,8 +80,10 @@ Below are the playlists from those first MIX CDs that began our relationship:
 
 
 
-We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us at annedeanandrand@gmail.com if you have ANY questions about the weekend or if you need help making any arrangements.
+We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us at [annedeanandrand@gmail.com](annedeanandrand@gmail.com) if you have ANY questions about the weekend or if you need help making any arrangements.
 
 We love you!
-XO,<br>
+<br>
+XO,
+<br>
 ad and rd

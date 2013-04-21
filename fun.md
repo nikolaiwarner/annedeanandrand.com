@@ -8,7 +8,7 @@ title: kentucky fun
 It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
 
 
-# eats
+# eats/drinks
 
 [West Sixth Brewery](http://www.westsixth.com/)<br>
 One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from [Sunrise Bakery](http://valotta.com/), and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including [Cricket Press](http://www.cricket-press.com/) who designed and printed our awesome wedding invitations), [roller derby girls](http://rocknrollergirls.com/), a [local bicyle shop](http://thebrokespoke.org/). Anne Dean also teaches a free community [yoga](http://www.facebook.com/WestSixthYoga) class in the beer garden every Wednesday!

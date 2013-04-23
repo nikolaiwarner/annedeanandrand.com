@@ -1,43 +1,48 @@
 ---
 layout: page
-title: weekend kentucky fun
+title: kentucky fun
 ---
 
-# weekend kentucky fun
+# kentucky fun
 
-[West Sixth Brewery](http://www.westsixth.com/)
+It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
+
+
+# eats/drinks
+
+[West Sixth Brewery](http://www.westsixth.com/)<br>
 One of our favorite places in town. Not only do they have amazing local beer (famous for their IPA), Rand's favorite soft pretzels from [Sunrise Bakery](http://valotta.com/), and delicious food trucks set up outside each evening, but they are a community that gives back, houses artists (including [Cricket Press](http://www.cricket-press.com/) who designed and printed our awesome wedding invitations), [roller derby girls](http://rocknrollergirls.com/), a [local bicyle shop](http://thebrokespoke.org/). Anne Dean also teaches a free community [yoga](http://www.facebook.com/WestSixthYoga) class in the beer garden every Wednesday!
 
 
-[Sidebar Grill](http://www.facebook.com/sidebar.grill)
+[Sidebar Grill](http://www.facebook.com/sidebar.grill)<br>
 Our favorite tiny dive bar with amazing black bean burgers and sweet potato fries. And the ice cream! Anne Dean's friend Seana of [Pedal Sassy](http://www.facebook.com/PedalSassy?fref=ts) makes the best ice cream (with alcohol) and it is served here. Flavors rotate each week.
 
 
-[Table 310](http://www.table-three-ten.com/)
+[Table 310](http://www.table-three-ten.com/)<br>
 One of our favorite atmospheres for drinks before or after dinner, dinner, or just dessert. Make a reservation to be safe and you will not be disappointed. Blackboar dmenu changes weekly.
 
 
-[The Village Idiot](http://www.lexingtonvillageidiot.com/)
+[The Village Idiot](http://www.lexingtonvillageidiot.com/)<br>
 Lexington's first gastropub. Ale-steamed mussels? Need we say more...
 
 
-[Stella's Kentucky Deli](http://www.stellaskentuckydeli.com/)
+[Stella's Kentucky Deli](http://www.stellaskentuckydeli.com/)<br>
 Best lunch in town (close by [The Grey Goose](http://www.facebook.com/GreyGooseLex)  and [Nick Ryan's Saloon](http://nickryans.com/) -two other excellent lunch/dinner options)
 
 
-[Mellow Mushroom Pizza](http://mellowmushroom.com/store/lexington)
+[Mellow Mushroom Pizza](http://mellowmushroom.com/store/lexington)<br>
 We LOVE pizza.
 
 
-[Alfalfa](http://www.alfalfarestaurant.com/)
+[Alfalfa](http://www.alfalfarestaurant.com/)<br>
 Amazing for brunch!
 
 
-[Doodles](http://www.doodlesrestaurant.com/)
+[Doodles](http://www.doodlesrestaurant.com/)<br>
 Say yes to an awesome breakfast. Plus they have beignets.
 
 
-[Third Street Stuff Coffee](http://www.yelp.com/biz/third-st-stuff-lexington)
+[Third Street Stuff Coffee](http://www.yelp.com/biz/third-st-stuff-lexington)<br>
 Coffee, breakfast, lunch-YUM
 
 
@@ -47,12 +52,13 @@ For more beer (we like good beer), head to another local brewery [Country Boy Br
 For anyone willing to hop in a car to experience a little more Kentucky...
 
 
-[Wallace Station](http://www.wallacestation.com/Wallace_Station_Deli_and_Bakery/Home.html)
+[Wallace Station](http://www.wallacestation.com/Wallace_Station_Deli_and_Bakery/Home.html)<br>
 Delicious lunch spot. This is a joint in the middle of beautiful KY horse country and has been featured in Garden & Gun and the Food Network's Diners, Drive-Ins and Dives.
 It is worth the drive alone!
 
 
-Horses and Bourbon
+# horses and bourbon
+
 
 Get up early and head to [Keeneland](http://www.keeneland.com/discover/morning-workouts) racetrack to see eat breakfast at the Track Kitchen and to watch racehorses run their morning workouts. It is simply breathtaking!
 Morning Workouts run from 6 am until 10 am.

@@ -1,10 +1,22 @@
 ---
 layout: page
-title: Storytime
+title: storytime
 ---
 
-# Storytime
 
+  
+# storytime
+
+
+## september! playlist
+
+Feel free to listen to our "september!" playlist as you peruse our website. If you have Spotify, feel free to suscribe to our playlist as we will will be adding more music. 
+
+<iframe src="https://embed.spotify.com/?theme=white&view=coverart&uri=spotify:user:annedeanw:playlist:01MffXd14fFIn5mhQS0oJI"
+  width="450" height="80" frameborder="0" allowtransparency="true">
+</iframe>
+  
+  
 ## A Story of Distance and Love
 ## 647 Miles by Air, 797 by Car
 
@@ -21,6 +33,8 @@ Anne Dean and Rand fell madly in love (how else can you explain that soon therea
 This past New Year’s Eve, as fireworks exploded in the midnight sky over Lexington, Rand proposed to Anne Dean with an antique Art Nouveau engagement ring. Anne Dean said yes. (Her cats Splendor and Selah are still holding out hope that she will come to her senses.)
 
 They are fascinated with and thrilled about their future, and they feel incredibly privileged that you, their friends and family, will be with them to see their journey begin on September 28, 2013.
+
+Below are the playlists from those first MIX CDs that began our relationship:
 
 
 ## “Festus Mix” Nov 2010
@@ -64,11 +78,17 @@ They are fascinated with and thrilled about their future, and they feel incredib
 #### Into the Mystic/Van Morrison
 
 
-<iframe src="https://embed.spotify.com/?uri=spotify:user:annedeanw:playlist:01MffXd14fFIn5mhQS0oJI"
-  width="450" height="380" frameborder="0" allowtransparency="true"></iframe>
 
-We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us if you have ANY questions about the weekend.
-annedeanandrand@gmail.com
+
+We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us at <annedeanandrand@gmail.com> if you have ANY questions about the weekend or if you need help making any arrangements.
+
 We love you!
+<br>
 XO,
+<br>
 ad and rd
+<br>
+<br>
+
+
+*all photographs by Jeanna Justice and Richie Wireman of [You, Me Studio](http://www.youmeweddings.com/).   

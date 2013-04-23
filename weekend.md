@@ -3,6 +3,8 @@ layout: page
 title: the weekend
 ---
 
+![](/public/images/annedeanandrand.jpg)
+
 # the weekend
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property nestled amongst beautiful horse country on Old Richmond Road.

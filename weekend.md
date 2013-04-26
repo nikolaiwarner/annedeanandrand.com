@@ -9,9 +9,9 @@ title: the weekend
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property Whitehall, which is nestled amongst beautiful horse country on Old Richmond Road.
 
-The adults-only (with the exception of family members) ceremony and reception will be held on the lawn (weather permitting), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
+The adults-only (with the exception of family members) ceremony and reception will be held on the lawn (the weather WILL be beautiful), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
 
-**Stay tuned for more details about the weekend, including transportation and parking.
+**Stay tuned for more details about the weekend, including transportation and parking as well as reliable chilcare options for those in need.
 
 
 ## a brief history of Whitehall

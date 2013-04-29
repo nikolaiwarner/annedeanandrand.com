@@ -11,7 +11,7 @@ Both the ceremony and reception will take place at Anne Dean's grandparents' pro
 
 The adults-only (with the exception of family members) ceremony and reception will be held on the lawn (the weather WILL be beautiful), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
 
-**Stay tuned for more details about the weekend, including transportation and parking as well as reliable chilcare options for those in need.
+**Stay tuned for more details about the weekend, including driving directions, transportation, and parking, as well as reliable childcare options for those in need.
 
 
 ## a brief history of Whitehall

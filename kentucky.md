@@ -31,10 +31,14 @@ There are three good airport options:
 
 Lexington literally sits at the intersection of two major interstates, I-64 (east, west) and I-75 (north, south). Our favorite people (you all) will be traveling from all over, so please let us know if we can help with the navigation!
 
+
+#Driving from the LEX airport to hotel blocks (please see hotel details on [get a room](/room)):
+
+
 - From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersection you come to is Versailles Road (pronounced VER-SAILS; we are Kentuckian, not French). Turn right on Versailles Road which will lead you directly into downtown Lexington. All three hotels that have room blocks for the wedding are within walking distance of each other downtown.
 
 
-- For Hyatt and Hilton lodgers (please see hotel details on [get a room](/room)), stay on Versailles (practice saying it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street).
+- For Hyatt and Hilton lodgers, stay on Versailles (practice saying it outloud again), it will eventually turn into High Street (almost every major road in Lexington has at LEAST three names). High Street happens when the road becomes one-way. Turn left on North Broadway and you will see the Hyatt on your left. Drive one more block and the Hilton will be on your right (turn right on Vine Street).
 
 
 - For Gratz Park Inn lodgers, make the same left on North Broadway, but drive a couple more blocks and turn right on Short Street (one-way). You will see a few of our favorite restaurants and then turn left on North Limestone (one-way). Drive a couple more blocks and you will see Gratz Park Inn signs on your left. Turn left on West Second Street and the hotel will be directly on your left.

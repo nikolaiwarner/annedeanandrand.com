@@ -32,7 +32,7 @@ There are three good airport options:
 Lexington literally sits at the intersection of two major interstates, I-64 (east, west) and I-75 (north, south). Our favorite people (you all) will be traveling from all over, so please let us know if we can help with the navigation!
 
 
-#Driving from the LEX airport to hotel blocks (please see hotel details on [get a room](/room)):
+Driving from the LEX airport to hotel blocks (please see hotel details on [get a room](/room)):
 
 
 - From the Lexington airport: turn left on Man O'War boulevard from the LEX exit. The first big intersection you come to is Versailles Road (pronounced VER-SAILS; we are Kentuckian, not French). Turn right on Versailles Road which will lead you directly into downtown Lexington. All three hotels that have room blocks for the wedding are within walking distance of each other downtown.

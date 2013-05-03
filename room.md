@@ -20,8 +20,8 @@ Here are links to the hotels  (Hilton and Hyatt can be booked directly from belo
 
 
 [GRATZ PARK INN](http://www.gratzparkinn.com/) (historic boutique inn)
-A handful of rooms and suites have been held under Watkins/Dotson wedding
-Contact Will Smith or the front desk to make reservations
+A handful of rooms and suites have been held under Watkins/Dotson wedding.<br>
+Contact Will Smith or the front desk to make reservations<br>
 859.231.1777
 
 Please let us know if you have trouble making any of these arrangements. The key is to book your room(s)early!

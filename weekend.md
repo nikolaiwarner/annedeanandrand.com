@@ -14,6 +14,8 @@ The adults-only (with the exception of family members) ceremony and reception wi
 **Stay tuned for more details about the weekend, including driving directions, transportation, and parking, as well as reliable childcare options for those in need.
 
 
+**For all the Instagrammers out there, please use the hashtag # #adandrd for any pictures taken related to the weekend, so we all can see and share.
+
 ## a brief history of Whitehall
 
 ![Whitehall (circa 1848)](/public/images/postcard.jpg)

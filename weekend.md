@@ -20,7 +20,7 @@ The adults-only (with the exception of family members) ceremony and reception wi
 **If you are looking for childcare during the events, we have a couple of reliable sitters on call that we can recommend. Just let us know via email (annedeanandrand@gmail.com) or by calling or texting Anne Dean at 859.552.6841 in plenty of time before the event.
 
 
-#*For all the Instagrammers out there, please use the hashtag  #adandrd for any pictures taken related to the weekend, so we all can see and share.
+#*For all the Instagrammers out there, please use the hashtag  #adandrd for any pictures taken related to the weekend, so we can all see and share.
 
 ## a brief history of Whitehall
 

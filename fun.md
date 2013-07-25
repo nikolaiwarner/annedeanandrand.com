@@ -8,6 +8,8 @@ title: kentucky fun
 It is super important to us that you enjoy yourselves while in the Bluegrass. Below please find some of our favorites if you need ideas:
 
 
+**Don't forget! For all you Instagrammers out there, please use the hashtag #adandrd on any pictures you take related to the wedding weekend, so that everyone can see and share!**
+
 # eats/drinks
 
 [West Sixth Brewery](http://www.westsixth.com/)<br>

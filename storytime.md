@@ -83,7 +83,11 @@ Below are the playlists from those first MIX CDs that began our relationship:
 We are incredibly thrilled to have you each be a part of our FUN and LOVE-FILLED weekend. Please email us at <annedeanandrand@gmail.com> if you have ANY questions about the weekend or if you need help making any arrangements.
 
 
-**For all your Instagrammers out there, please use the hashtag #adandrd on any images you take related to the weekend so everyone can see and share!**
+
+**For all you Instagrammers out there, please use the hashtag #adandrd on any pictures you take related to the wedding weekend, so that everyone can see and share!**
+
+
+
 We love you!
 <br>
 XO,

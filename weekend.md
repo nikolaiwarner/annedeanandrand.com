@@ -22,7 +22,7 @@ The adults-only (with the exception of family members) ceremony and reception wi
 
 ** Please check back here frequently for any updates!
 
-## For all the Instagrammers out there, please use the hashtag  #adandrd for any pictures taken related to the weekend, so we can all see and share.
+# For all the Instagrammers out there, please use the hashtag  #adandrd for any pictures taken related to the weekend, so we can all see and share.
 
 ## a brief history of Whitehall
 

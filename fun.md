@@ -48,6 +48,10 @@ Say yes to an awesome breakfast. Plus they have beignets.
 Coffee, breakfast, lunch-YUM
 
 
+[A Cup of Commonwealth](http://acupofcommonwealth.com/)<br>
+Some of the best coffee in town! Check out their pay-it-forward board and as a wedding guest (show them this website on your phone or tell how you know us and you will score a free drink!)
+
+
 For more beer (we like good beer), head to another local brewery [Country Boy Brewing](http://www.facebook.com/CountryBoyBrewing), [The Beer Trappe](http://www.thebeertrappe.com/) , or [Lexington Beerworks](http://lexingtonbeerworks.com/home/) (close to Gratz Park Inn)
 
 

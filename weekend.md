@@ -9,11 +9,15 @@ title: the weekend
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property Whitehall, which is nestled amongst beautiful horse country on Old Richmond Road.
 
-The adults-only (with the exception of family members and the new sweet babies that all of our close friends are producing!) ceremony and reception will be held on the lawn (the weather WILL be beautiful), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
+The adults-only (with the exception of family members) ceremony and reception will be held on the lawn (the weather WILL be beautiful), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
 
-**Whitehall is located at 4690 Old Richmond Road, right off of Richmonad Road. If you are coming from town, turn right on Old Richmond Road from Richmond Road (you will Jacobson Park on your left). The wedding site is approximately one mile down Old Richmond Road. You will see signs to help direct you for parking. The location will be on your right, and you will pass the property and turn right on Walbut Hill Road. You will turn into your first right like you are turning into Walnut Hill Church which also leads to an access road leading to a side entrace to Whitehall. You will be directed to park either on the actual property, on the access road, or in the church lot.
-If you are carless in Lexington and need transportation assistance, please email us at annedeanandrand@gmail.com, and we will work with you to arrange something.
-If you are looking for childcare during the events, we have a couple of reliable sitters on call that we can recommend. Just let us know via email (annedeanandrand@gmail.com)or by calling or texting Anne Dean at 859.552.6841 in plenty of time before the event.
+**Whitehall is located at 4690 Old Richmond Road (US Route 421), right off of Richmond Road. If you are coming from town, turn right on Old Richmond Road (US ROUTE 421) from Richmond Road (Jacobson Park will be on the left). The wedding site is approximately one mile down Old Richmond Road. There will be signs to help direct you towards parking. The wedding site will be on the right. Drive past the property and turn right on Walnut Hill Road. Take the first right on Walnut Hill Road as if you are turning into Walnut Hill Church which also leads to an access road leading to a side entrance to the wedding site. You will be directed to park either on the actual property, on the access road, or in the church lot.
+
+
+**If you are carless in Lexington and need transportation assistance, please email us at annedeanandrand@gmail.com, and we will work with you to arrange something.
+
+
+**If you are looking for childcare during the events, we have a couple of reliable sitters on call that we can recommend. Just let us know via email (annedeanandrand@gmail.com) or by calling or texting Anne Dean at 859.552.6841 in plenty of time before the event.
 
 
 #*For all the Instagrammers out there, please use the hashtag  #adandrd for any pictures taken related to the weekend, so we all can see and share.

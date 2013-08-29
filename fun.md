@@ -49,7 +49,7 @@ Coffee, breakfast, lunch-YUM
 
 
 [A Cup of Commonwealth](http://acupofcommonwealth.com/)<br>
-Some of the best coffee in town! Check out their pay-it-forward board and as a wedding guest (prove it by showing them this website on your phone or taking a picture of yourself with the hashtag #adandrd) and you will get a free drink!
+Some of the best coffee in town! Check out their pay-it-forward board and as a wedding guest **(prove it by showing them this website on your phone or taking a picture of yourself with the hashtag #adandrd) and you will get a free drink!)**
 
 
 For more beer (we like good beer), head to another local brewery [Country Boy Brewing](http://www.facebook.com/CountryBoyBrewing), [The Beer Trappe](http://www.thebeertrappe.com/) , or [Lexington Beerworks](http://lexingtonbeerworks.com/home/) (close to Gratz Park Inn)

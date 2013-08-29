@@ -9,7 +9,7 @@ title: the weekend
 
 Both the ceremony and reception will take place at Anne Dean's grandparents' property Whitehall, which is nestled amongst beautiful horse country on Old Richmond Road.
 
-The *adults-only* (with the exception of family members) ceremony and reception will be held on the lawn (the weather WILL be beautiful), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
+The **adults-only** (with the exception of family members) ceremony and reception will be held on the lawn (the weather WILL be beautiful), so keep that in mind as you choose your attire and, more importantly, your dancing shoes for the evening.
 
 ** Whitehall is located at 4690 Old Richmond Road (US Route 421), right off of Richmond Road. If you are coming from town, turn right on Old Richmond Road (US Route 421) from Richmond Road (Jacobson Park will be on the left). The wedding site is approximately one mile down Old Richmond Road. There will be signs to help direct you towards parking. The wedding site will be on the right. Drive past the property and turn right on Walnut Hill Road. Take the first right on Walnut Hill Road as if you are turning into Walnut Hill Church which also leads to an access road leading to a side entrance to the wedding site. You will be directed to park either on the actual property, on the access road, or in the church lot.
 

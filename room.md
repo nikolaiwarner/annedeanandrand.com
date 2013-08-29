@@ -9,7 +9,7 @@ We have blocked off rooms at three hotels in downtown Lexington. All three hotel
 
 
 Rooms have been reserved under Watkins/Dotson Wedding for September 27 and September 28. If you plan on arriving earlier or staying later (yay!), we have been told that the same discounted rate will be applied if rooms are available.
-Please book before August 27th to guarantee the group rate.
+**Please book before September 3rd to guarantee a room AND the group rate. This is a busy weekend in LExington, so hotels will fill up QUICKLY**
 
 Here are links to the hotels  (Hilton and Hyatt can be booked directly from below links, Gratz Park will need to be called for reservations.)
 

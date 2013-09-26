@@ -65,7 +65,9 @@ Delicious lunch spot. This is a joint in the middle of beautiful KY horse countr
 It is worth the drive alone!
 
 
-# horses and bourbon
+# horses and bourbon and books
+
+Please stop by Lexington's best indie bookstore (where Anne Dean used to work) and say hello. Tell them you are going to the wedding! [the Morris book shop](http://www.morrisbookshop.com/)
 
 
 Get up early and head to [Keeneland](http://www.keeneland.com/discover/morning-workouts) racetrack to see eat breakfast at the Track Kitchen and to watch racehorses run their morning workouts. It is simply breathtaking!
